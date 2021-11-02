@@ -1,2 +1,1 @@
 # Bahubhashak_GIST
-# Team
